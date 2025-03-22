@@ -1,1 +1,1 @@
-Just download the rom, than click the "choose file button" in Sonic 3 AIR and select Sonic & Knuckles + Sonic The Hedgehog 3 (World).md
+These ROMS are kinda hard to find on here so I put them on this REPO for easy access
